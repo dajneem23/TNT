@@ -1,2 +1,2 @@
 # TNT
-# Dead is like a wind alway by my side
+# Dead is like the wind Alway by my side
